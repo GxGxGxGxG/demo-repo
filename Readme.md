@@ -1,1 +1,1 @@
-nimik interesant aici
+nimik interesant aicq
